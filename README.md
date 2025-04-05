@@ -1,0 +1,2 @@
+# salginhastaliklar
+salgin hastaliklar
